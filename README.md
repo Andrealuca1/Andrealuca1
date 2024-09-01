@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Andrealuca1
+- 👀 I’m interested in becoming a better programmer
+- 🌱 I’m currently learning C
+- 💞️ I’m looking to collaborate on various projects where I can contribute and also learn from others.
+- 📫 How to reach me Feel free to connect with me on LinkedIn at https://www.linkedin.com/in/andrea-luca-7973a1264/.
+- 😄 Pronouns: He/Him
